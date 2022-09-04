@@ -41,4 +41,22 @@ As they say, everything is learned by comparison, and I can assure you that this
 
 ---
 
-### :fire: My Statictics
+### :fire: Noderunning
+
+My portfolio:<br>
+
+- 💎 Archway
+- 💎 Sui
+- 💎 Massa
+- 💎 Masa
+- 💎 Minima
+- 💎 Celestia
+- 💎 Iron Fish
+- 💎 Aptos
+- 💎 Zeitgeist
+- 💎 Starknet
+- 💎 Subspace
+- 💎 Humanode
+- 💎 Bundlr
+- 💎 Espresso
+- 💎 GNO Land
