@@ -60,3 +60,9 @@ My portfolio:<br>
 - 💎 Bundlr
 - 💎 Espresso
 - 💎 GNO Land
+
+---
+
+### 📉 My Stats
+
+[![GitHub Streak](http://github-readme-streak-stats.herokuapp.com?user=nikitastaf7&theme=onedark&hide_border=true)](https://git.io/streak-stats)
