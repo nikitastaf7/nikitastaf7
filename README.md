@@ -66,3 +66,9 @@ My portfolio:<br>
 ### 📉 My Stats
 
 [![GitHub Streak](http://github-readme-streak-stats.herokuapp.com?user=nikitastaf7&theme=onedark&hide_border=true)](https://git.io/streak-stats)
+
+---
+
+### :fire: Announcement
+
+Now I will describe every week what I do in this world of mysterious cryptocurrencies. I will keep the coolest blog and please you with interesting selfies:) You will know everything now!
