@@ -69,6 +69,17 @@ My portfolio:<br>
 
 ---
 
-### :fire: Announcement
+### :fire: Announcement [relevant at the moment!]
 
 Now I will describe every week what I do in this world of mysterious cryptocurrencies. I will keep the coolest blog and please you with interesting selfies:) You will know everything now!
+
+[11.12.2022]<br><br>
+In general, the first post is introductory. Of course, I would like to have some kind of feedback, maybe questions or expert criticism. But there is none of that, which means you are on my channel and so hello everyone!
+
+Today I decided to write my first post for you. I am unreal excited, just goosebumps on my skin and cold sweat on my forehead. I am very excited, as if someone really reads me, as if I am not the only viewer and reader of myself. Okay, not the point.
+
+This last week has been heavenly, just divine. I was finally able to get some rest. Before that I was unrealistically tired and generally disappointed in a lot of things, but then again, that's not the point.
+
+All that matters is, guys, that I'm doing everything to succeed, and that's what really matters. Bye, everybody!
+
+PS: I almost forgot. Iron Fish, Sui, Humanode. Don't trust these guys, they can really get on your nerves, even if they promised not to. Just don't trust them! (joke, gimmick, trunk!!!!!) In fact, it's exactly the opposite, the guys are very good and very cool! Please let us enjoy the gems more often!).
