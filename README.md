@@ -83,3 +83,8 @@ This last week has been heavenly, just divine. I was finally able to get some re
 All that matters is, guys, that I'm doing everything to succeed, and that's what really matters. Bye, everybody!
 
 PS: I almost forgot. Iron Fish, Sui, Humanode. Don't trust these guys, they can really get on your nerves, even if they promised not to. Just don't trust them! (joke, gimmick, trunk!!!!!) In fact, it's exactly the opposite, the guys are very good and very cool! Please let us enjoy the gems more often!).
+
+[11.02.2023]<br><br>
+It's been a long time since the previous post. But I am entitled, for it was the Christmas holidays, then the Chinese New Year. Oh yeah, the Battle of the Godens and all that stuff. But not about that now, for it would be bad form not to share something interesting from my work. Anyway, the third phase of the Iron Fish node began, and I received an email from SUI inviting me to participate in the second phase of the project.
+
+All in all, everything is cool, I'm still collecting the tastiest cream from the gems and little by little getting closer to the goal of 1 million dollars. Bye everyone and good luck!
